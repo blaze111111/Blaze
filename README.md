@@ -19,7 +19,7 @@ My GitHub Profile✍️(◔◡◔)
   
 * 🤔 I’m looking for help with EVERYTHING T_T
   
-* 📫 How to reach me: via Linkedin </a> <a href="www.linkedin.com/in/jess-tan-816098285">
+* 📫 How to reach me: via Linkedin </a> <a href="https://www.linkedin.com/in/jess-tan-816098285">
   <img height="15" src="https://user-images.githubusercontent.com/46517096/166973395-19676cd8-f8ec-4abf-83ff-da8243505b82.png"/>
 </a>
 
